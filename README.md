@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Shirleyoooooo.
+- 👀 I’m interested in traveling.
+- 🌱 I’m currently learning foreign trade.
+- 💞️ I am looking for companies that need ic.
+- 📫 How to reach me :
+- 👀Wechat：Amin_oyo
+- 👀E-mail:shirley@corechips.net
+- 👀Our company website:www.corechips.net 
